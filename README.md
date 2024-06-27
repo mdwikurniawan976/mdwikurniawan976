@@ -1,4 +1,4 @@
-![Profil](file:///E:/Downloads/bg)
+![Profil](file:///E:/Downloads/bg.jpg)
 
 # 💫 About Me:
 I'm currently a student at SMKN 1 Bangil.
