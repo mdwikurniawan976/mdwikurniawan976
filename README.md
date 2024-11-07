@@ -1,4 +1,4 @@
-![Profil](https://github.com/mdwikurniawan976/banner/raw/main/WhatsApp%20Image%202024-06-27%20at%2015.42.23_140536e1.jpg)
+
 
 
 
